@@ -1,6 +1,17 @@
-##Vitaj na Spini SK :D 
+štetka SK 
 
-Všecky su špini
+Proste ma neser ajtak vyhrám :D 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ štetka štetkaštetkaštetkaštetkaštetkaštetkaštetkaštetkaštetkaštetkaštetkaštetkaštetkaštetka
 
 
 
